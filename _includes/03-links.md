@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+Yiu can checkout my social media say hello on twitter [@drguthals](https://twitter.com/drguthals)
